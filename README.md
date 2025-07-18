@@ -1,9 +1,9 @@
 # Dark-Hub-v6-Craked
 This Script Is Made By MizuScripts x Dark ⚫
 
-# I Owned This Script, So Please Do Not Copy Add Credit @mizuscripts
+I Owned This Script, So Please Do Not Copy Add Credit @mizuscripts
 
-# Function By Dark & Mizu
+Function By Dark & Mizu
 
 This Script Is Premium - Locked By MoonSec V3
      
